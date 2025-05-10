@@ -5,7 +5,7 @@ Welcome to chill  持續出產好貨
 一個假原民 一個外星人
 Asia freaks 每個都Dope
 ______________________________________
-Asia Freaks Cypher Vol.1
+完整版 Asia Freaks Cypher Vol.1
 ______________________________________
 Music Credits
 _____________________________________________________________
