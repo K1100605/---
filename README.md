@@ -8,55 +8,93 @@ ______________________________________
 Asia Freaks Cypher Vol.1
 ______________________________________
 Music Credits
+_____________________________________________________________
 詞｜Majin/五木/Lizi栗子/Starr Chen/E1and/潮州土狗/Asiaboy禁藥王
+_____________________________________________________________
 曲｜Majin/五木/Lizi栗子/Starr Chen/E1and/潮州土狗/Asiaboy禁藥王
+___________________
 製作人｜Liory 蔣馬林
+___________________
 編曲｜2-CHI/Liory 蔣馬林
+_______________________
 錄音師｜95
+_________
 錄音室｜尾聲音樂WS Studio
+________________________
 混音師｜Wayson Scream @奇洱文創
+______________________________
 母帶工程師｜Wayson Scream @奇洱文創
+_________________________________
 母帶工作室｜尾聲音樂WS Studio
+____________________________
 OP：奇洱文創有限公司 CHILL ENTERTAINMENT LTD.
+____________________________________________
 SP：滾石國際音樂股份有限公司 ROCK MUSIC PUBLISHING CO., LTD.
-
+__________________________________________________________
 Starr Chen
-OP：跳蛋工廠有限公司
+__________
+OP：taodan工廠有限公司
+___________________
 SP：Universal Ms Publ Ltd Taiwan
 
 --------------------------------------------------------------------------------
 MV Credit
+_____________
 製作公司 Production Company｜GJ94 Creative
+_
 監製 Executive Producer｜Jizo、陳埃 Ai Chen 
-#cypher #Asiafreaks
-
+_
 導演 Director｜漢克 @multi_hank
+_
 導演助理 Assistant to Director ｜黃享佑 Spider.yo
+_
 專案經理 Project Manager｜林姿均 Light Lin
+_
 製片 Producer｜張麗怡 Lily CHANG
+_
 製片助理 Production Assistant｜張育凱 Reaka、許景翔 Jason Xu
+_
 攝影師 D.O.P｜吳宗漢 Hank Wu
+_
 攝影助理 Camera Assistant｜李孟衍 YangLee、張育華 Daniel Chang
+_
 攝影器材 Camera Equipment｜星迹影像股份有限公司
+_
 燈光師 Gaffer｜曾皓 Andrew Tseng
+_
 燈大助 Best Boy｜廖孟晉 LMJ
+_
 燈光助理 Best Boy｜吳煜軒 Shuan Wu 
+_
 燈光組實習生 Lighting intern｜胡建翔 Kristie Hu、呂昀叡 Yunray Lu
+_
 燈光器材 Light Equipment｜仙人掌影業
+_
 剪輯 Editor ｜吳宗漢 Hank Wu
+_
 調光 Colorist｜台中吳大炮
+_
 AI ART BY @dirtyloudpack93 Rexon
-
+_
 藝人造型 Stylist｜歐鎮瑜 Eighty OU、江志昉 mika Chiang
+_
 梳化 Make up｜鄭伃婷 Doris Cheng/Backstage
+_
 梳化助理 Make up assistant ｜詹芯語 Camila Chan/Backstage
+_
 髮型 Hair Stylist｜ 許博凱 BK Hsu
+_
 特別感謝 Special Thanks｜灰棚、高弘宇 Hungyu Kao
-
+_
 單曲封面設計 Cover Designer ｜江志昉 mika Chiang
+_
 單曲封面攝影 Cover Photographer｜中心於 cyndii
+_
 平面側拍 Photographer ｜中心於 cyndii
-
+_
 亞洲怪怪經紀團隊 TEAM OF ASIA FREAKS 
+_
 奇洱文創有限公司 CHILL ENTERTAINMENT
+_
 藝人經紀｜ 江志昉 mika Chiang、歐鎮瑜Eighty OU、劉泰羽 Timothy Liu、黃梓恩 Rich Rolle、茅以姍L!ght
+_
