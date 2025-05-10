@@ -1,7 +1,61 @@
 # 潮州土狗-三個平地人兩個新住民一個原住民
-點擊下載
 笑死 笑死 笑死
 Welcome to chill  持續出產好貨
 三個平地人 兩個新住民 
 一個假原民 一個外星人
 Asia freaks 每個都Dope
+______________________________________
+Asia Freaks Cypher Vol.1
+Music Credits
+詞｜Majin/五木/Lizi栗子/Starr Chen/E1and/潮州土狗/Asiaboy禁藥王
+曲｜Majin/五木/Lizi栗子/Starr Chen/E1and/潮州土狗/Asiaboy禁藥王
+製作人｜Liory 蔣馬林
+編曲｜2-CHI/Liory 蔣馬林
+錄音師｜95
+錄音室｜尾聲音樂WS Studio
+混音師｜Wayson Scream @奇洱文創
+母帶工程師｜Wayson Scream @奇洱文創
+母帶工作室｜尾聲音樂WS Studio
+OP：奇洱文創有限公司 CHILL ENTERTAINMENT LTD.
+SP：滾石國際音樂股份有限公司 ROCK MUSIC PUBLISHING CO., LTD.
+
+Starr Chen
+OP：跳蛋工廠有限公司
+SP：Universal Ms Publ Ltd Taiwan
+
+--------------------------------------------------------------------------------
+MV Credit
+製作公司 Production Company｜GJ94 Creative
+監製 Executive Producer｜Jizo、陳埃 Ai Chen 
+#cypher #Asiafreaks
+
+導演 Director｜漢克 @multi_hank
+導演助理 Assistant to Director ｜黃享佑 Spider.yo
+專案經理 Project Manager｜林姿均 Light Lin
+製片 Producer｜張麗怡 Lily CHANG
+製片助理 Production Assistant｜張育凱 Reaka、許景翔 Jason Xu
+攝影師 D.O.P｜吳宗漢 Hank Wu
+攝影助理 Camera Assistant｜李孟衍 YangLee、張育華 Daniel Chang
+攝影器材 Camera Equipment｜星迹影像股份有限公司
+燈光師 Gaffer｜曾皓 Andrew Tseng
+燈大助 Best Boy｜廖孟晉 LMJ
+燈光助理 Best Boy｜吳煜軒 Shuan Wu 
+燈光組實習生 Lighting intern｜胡建翔 Kristie Hu、呂昀叡 Yunray Lu
+燈光器材 Light Equipment｜仙人掌影業
+剪輯 Editor ｜吳宗漢 Hank Wu
+調光 Colorist｜台中吳大炮
+AI ART BY @dirtyloudpack93 Rexon
+
+藝人造型 Stylist｜歐鎮瑜 Eighty OU、江志昉 mika Chiang
+梳化 Make up｜鄭伃婷 Doris Cheng/Backstage
+梳化助理 Make up assistant ｜詹芯語 Camila Chan/Backstage
+髮型 Hair Stylist｜ 許博凱 BK Hsu
+特別感謝 Special Thanks｜灰棚、高弘宇 Hungyu Kao
+
+單曲封面設計 Cover Designer ｜江志昉 mika Chiang
+單曲封面攝影 Cover Photographer｜中心於 cyndii
+平面側拍 Photographer ｜中心於 cyndii
+
+亞洲怪怪經紀團隊 TEAM OF ASIA FREAKS 
+奇洱文創有限公司 CHILL ENTERTAINMENT
+藝人經紀｜ 江志昉 mika Chiang、歐鎮瑜Eighty OU、劉泰羽 Timothy Liu、黃梓恩 Rich Rolle、茅以姍L!ght
